@@ -1,4 +1,4 @@
-Heya! just call me vixxen, im just an average artist/animator,  i go by he/she , i preffer he though, I will animate/ make comics on my cannel here and there, if you want, you can always stop by, but i think all my videos are cringe 
+Heya! just call me vixxen, im just an average artist/animator,  i go by he/she , i preffer he though, I will animate/ make comics on my channel here and there, if you want, you can always stop by, but i think all my videos are cringe 
 HIGHLY obsessed with dandysworld atm, ( i cant stop)
 
 
