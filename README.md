@@ -1,16 +1,24 @@
-Heya! just call me vixxen, im just an average artist/animator,  i go by he/she , i preffer he though, I will animate/ make comics on my channel here and there, if you want, you can always stop by, but i think all my videos are cringe 
+Heya! just call me vixxen, im just an average artist/animator,  I go by he/she , I preffer he though, I will animate/ make comics on my channel here and there, if you want, you can always stop by, but I think all my videos are cringe 
 
-HUGE MULTISHIPPER (i dont like the weird ships) 
+HUGE MULTISHIPPER (I dont like the weird ships) 
 
-HIGHLY obsessed with dandysworld atm, (i cant stop)
+HIGHLY obsessed with dandysworld atm, (I can't stop)
 
-*link to my discord server for fans! i have 2 discord servers , one of them has my friends in it, YOU MUST BE 13+ TO JOIN THE DISCORD SERVER!
-*LINK TO MY YOUTUBE CHANNEL, if you wanna visit you can 
+*link to my discord server for fans! I have 2 discord servers , one of them has my friends in it, YOU MUST BE 13+ TO JOIN THE DISCORD SERVER!
+*LINK TO MY YOUTUBE CHANNEL, if you wanna visit you can.
 
-*I TAKE REQUESTS! just dm me or comment on my youtube for a dandys world ship suggestion you want me to do, ill try respond as soon as possible if not busy.
+*I TAKE REQUESTS! just DM me or comment on my youtube for a dandys world ship suggestion you want me to do, i'll try respond as soon as possible if not busy.
+DM ME IF NEEDED, i'll respond if I can.
 
 INT :
-close friends 
-I dont mind if  you do a c+h with me, as long as you're not weird
+*close friends 
+
+*I dont mind if  you do a c+h with me, as long as you're not weird
+
+*multishippers
+
+*other artists/animators 
+
+
 
 
