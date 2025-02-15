@@ -1,6 +1,6 @@
 Heya! just call me vixxen, im just an average artist/animator,  I go by he/she , I preffer he though, I will animate/ make comics on my channel here and there, if you want, you can always stop by, but I think all my videos are cringe 
 
-psst check out my rentry if your curious
+psst check out my rentry if your curious, add me on discord or maybe int w me on ponytown if you want!
 
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
