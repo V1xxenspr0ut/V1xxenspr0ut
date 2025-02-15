@@ -1,5 +1,7 @@
 Heya! just call me vixxen, im just an average artist/animator,  I go by he/she , I preffer he though, I will animate/ make comics on my channel here and there, if you want, you can always stop by, but I think all my videos are cringe 
 
+psst check out my rentry if your curious
+
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
 HIGHLY obsessed with dandysworld atm, (I can't stop)
