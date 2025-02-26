@@ -13,7 +13,7 @@ HIGHLY obsessed with dandysworld atm, (I can't stop)
 *I TAKE REQUESTS! just DM me or comment on my youtube for a dandys world ship suggestion you want me to do, i'll try respond as soon as possible if not busy.
 DM ME IF NEEDED, i'll respond if I can.
 
-DANDYS WORLD AU INFO (in progress0
+DANDYS WORLD AU INFO (in progress)
 
 
 
