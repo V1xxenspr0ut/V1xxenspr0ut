@@ -8,8 +8,7 @@ HUGE MULTISHIPPER (I dont like the weird ships)
 
 *link to my discord server for fans! : (https://discord.gg/X7rXv5h2)
 
-*I TAKE REQUESTS! just DM me or comment on my youtube for a dandys world ship suggestion you want me to do, i'll try respond as soon as possible if not busy.
-DM ME IF NEEDED, i'll respond if I can.
+ATABOOK is in the links for those who want me to draw anything dandys world related for them! ( keep in mind I respond slowly at times since I'm still working on my au, and being busy irl)
 
 DANDYS WORLD AU INFO (in progress)
 
