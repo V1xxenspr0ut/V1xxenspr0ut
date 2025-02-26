@@ -6,9 +6,7 @@ HUGE MULTISHIPPER (I dont like the weird ships)
 
 HIGHLY obsessed with dandysworld atm, (I can't stop)
 
-*link to my discord server for fans! :[
-](https://discord.gg/X7rXv5h2)
-
+*link to my discord server for fans! : (https://discord.gg/X7rXv5h2)
 
 *I TAKE REQUESTS! just DM me or comment on my youtube for a dandys world ship suggestion you want me to do, i'll try respond as soon as possible if not busy.
 DM ME IF NEEDED, i'll respond if I can.
