@@ -4,7 +4,7 @@ youtube channel should be in the links!
 
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
-HIGHLY obsessed with dandysworld atm, (I can't stop)
+
 
 *link to my discord server for fans! : (https://discord.gg/X7rXv5h2)
 
