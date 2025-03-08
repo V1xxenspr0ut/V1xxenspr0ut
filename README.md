@@ -5,13 +5,9 @@ youtube channel should be in the links!
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
 
-
 *link to my discord server for fans! : (https://discord.gg/X7rXv5h2)
 
-ATABOOK is in the links for those who want me to draw anything dandys world related for them! ( keep in mind I respond slowly at times since I'm still working on my au, and being busy irl)
-
-DANDYS WORLD AU INFO (in progress)
+ATABOOK is in the links for those who want me to draw anything dandys world related for them! ( keep in mind I respond slowly at times since I'm still working on improving my artstyle, and working on my life outside all of that)
 
 
-
-
+go to my rentry to find out more about me  if you want to!
