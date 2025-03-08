@@ -1,6 +1,4 @@
-Heya! just call me vixxen, im just an average artist/animator,  I go by he/she , I preffer he though, I will animate/ make comics on my channel here and there, if you want, you can always stop by, but I think all my videos are cringe 
-
-youtube channel should be in the links! 
+Heya! just call me vixxen, im just an average artist/animator,  I go by he/she , I preffer he though, 
 
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
