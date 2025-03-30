@@ -1,4 +1,5 @@
 Heya! just call me vixxen, im just an average artist/animator,  I go by he/she , I preffer he though, 
+i may come off as rude but i promise im very nice, c+h anytime
 
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
