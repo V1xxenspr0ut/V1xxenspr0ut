@@ -5,6 +5,8 @@ HUGE MULTISHIPPER (I dont like the weird ships)
 
 umm, discord server in constructionnn for now 
 
+my twins vivian and @starjellyyy r ugleh/j
+ 
 ATABOOK is in the links for those who want me to draw anything dandys world related for them! ( keep in mind I respond slowly at times since I'm still working on improving my artstyle, and working on my life outside all of that)
 
 
