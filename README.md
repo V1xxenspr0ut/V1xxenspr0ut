@@ -2,7 +2,7 @@ Heya just call me vixxen. my humour is rude at times, and I tend to do it a lot 
 
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
-my twins vivian and starjelly are ugleh/j
+my twins vivian and starjelly are ugleh brooo!
 other twins: mellow and trixie 
 
  
