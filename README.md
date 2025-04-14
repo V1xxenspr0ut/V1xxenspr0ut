@@ -1,5 +1,11 @@
 Heya just call me vixxen. my humour is rude at times, and I tend to do it a lot with my friendgroup so dont take it srsly ,im genuinely a very nice person (sensitive people suck sometimes bro no offence)
 
+when im on 🌙 im  always drawing/ drawing characters for my friendgroup/ working on au
+when im on 🗨️ im able to chat to
+when im on busy, im offtab doing irl stuff
+
+(either of these you can still c+h me)
+
 HUGE MULTISHIPPER (I dont like the weird ships) 
 
 my twins vivian and starjelly are ugleh brooo!
